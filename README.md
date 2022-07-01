@@ -1,1 +1,0 @@
-# Permanente02C
